@@ -1,0 +1,1 @@
+# I am a 3rd std kid, try to write some spelling checks, explain in simple English
