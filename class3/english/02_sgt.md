@@ -1,6 +1,6 @@
 # SGT
 
-## Symmetry symm-etry
+## Symmetry sy-mme-try
 
 Symmetry is when something looks the same on both sides. Imagine folding a paper in half, and both sides match perfectly. Examples are a butterfly, a star, or a leaf!
 
@@ -24,10 +24,10 @@ Carry means to pick something up and take it somewhere. For example, you carry y
 
 A knife is a tool that helps us cut things like food or paper. It has a sharp edge, so we should always use it carefully and with an adult's help!
 
-## Relationship
+## Relationship / Re-la-tion-ship
 
 Relationship means how two people, friends, or family connect and care for each other. It is built on love, trust, respect, and kindness. Good relationships make us happy and safe. Bad ones may bring hurt. Like plants need water, relationships need time, talk, and care to grow strong.
 
-## Sedimentation
+## Sedimentation / Sedi-men-ta-tion
 
 Sedimentation means when tiny particles like sand, mud, or dirt slowly settle down at the bottom of water. For example, if you mix soil in water and leave it still, after some time the heavy soil goes down and clear water stays on top. This process is called sedimentation.
