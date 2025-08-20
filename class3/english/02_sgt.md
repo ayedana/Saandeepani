@@ -1,6 +1,6 @@
 # SGT
 
-## Symmetry
+## Symmetry symm-etry
 
 Symmetry is when something looks the same on both sides. Imagine folding a paper in half, and both sides match perfectly. Examples are a butterfly, a star, or a leaf!
 
